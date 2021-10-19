@@ -1,5 +1,4 @@
-live link : https://focused-goldberg-564632.netlify.app/
+live link : https://elegant-panini-4eb75b.netlify.app/
 
-1.This is KID School
-2. Best course you can get here for your kids.
-3.If you learn from best you will be best ,in our school your child learn from best teacher.
+1.This Dental Care
+2. you can get the best treatments here
